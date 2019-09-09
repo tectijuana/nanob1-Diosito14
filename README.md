@@ -1,3 +1,5 @@
-# El ser mas poderoso del universo:
-## Diosito
-![](![](https://i.redd.it/ajym59ddxshx.png)
+# Actividad 1
+## Definiciones
+### Lenguaje
+![](https://www.investigacionyciencia.es/files/30584.jpg)
+Capacidad propia del ser humano para expresar pensamientos y sentimientos por medio de la palabra.
